@@ -1,1 +1,1 @@
-Cecelia Muthoni Mwangi
+Cecelia M. Mwangi
