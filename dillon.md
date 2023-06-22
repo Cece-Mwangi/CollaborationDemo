@@ -1,1 +1,1 @@
-Dillon Anthony Coe
+Dillon A. Coe
